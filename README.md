@@ -150,7 +150,7 @@
 
 # 
 
-# 👉 \*\*\[CLIQUE AQUI PARA INTERAGIR COM O MEU NOTEBOOKLM](https://notebooklm.google.com/notebook/351c0f36-188f-460a-804e-08fdb159022c/preview)\*\*
+# 👉 \*\*\[clique aqui para interagir](https://notebooklm.google.com/notebook/351c0f36-188f-460a-804e-08fdb159022c/preview)\*\*
 
 # 
 
